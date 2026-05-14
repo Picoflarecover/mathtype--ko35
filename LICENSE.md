@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MathType for PC | MathType for Windows helper with custom MathType for PC | MathType for Windows Helper | publication-quality-graphics + scripting. Featuring
 
 
 
